@@ -1,0 +1,9 @@
+#!/bin/sh
+
+mkdir -p 'pdf'
+
+for file in $(ls 'notes/')
+do
+    name=$(printf '%s' $file | cut -d '.' -f 1)
+    groff -ms -Kutf8 "notes/${file}" | ps2pdf - "pdf/${name}.pdf"
+done
