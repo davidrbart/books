@@ -486,3 +486,335 @@ They do not cause pain and unhappiness.
 They bring out the pain and unhappiness that is already in you.
 Every addiction does that.
 Every addiction reaches a point where it does not work for you anymore, and then you feel the pain more intensely than ever.
+
+.QP
+In fact, the moment that judgment stops through acceptance of what is, you are free of the mind.
+You have made room for love, for joy, for peace.
+First you stop judging yourself then you stop judging your partner.
+The greatest catalyst for change in a relationship is complete acceptance of your partner as he or she is, without needing to judge or change them in any way.
+That immediately takes you beyond ego. All mind games and all addictive clinging are then over.
+There are no victims and no perpetrators anymore, no accuser and accused, This is also the end of all codependency, of being drawn into somebody else's unconscious pattern and thereby enabling it to continue.
+
+.QP
+Love is a state of Being.
+Your love is not outside; it is deep within you.
+You can never lose it, and it cannot leave you.
+It is not dependent on some other body, some external form.
+
+.QP
+Love is not selective, just as the light of the sun is not selective.
+It does not make one person special.
+It is not exclusive.
+
+.QP
+As soon as the mind and mind identification return, you are no longer yourself but a mental image of yourself, and you start playing games and roles again to get your ego needs met.
+You are a human mind again, pretending to be a human being, interacting with another mind, playing a drama called "love".
+
+.QP
+Millions are now living alone or as single parents, unable to establish an intimate relationship or unwilling to repeat the insane drama of past relationships.
+Others go from one relationship to another, from one pleasure-and-pain cycle to another, in search of the elusive goal of fulfillment through union with the opposite energy polarity.
+Still others compromise and continue to be together in a dysfunctional relationship in which negativity prevails, for the sake of the children or security, through force of habit, fear of being alone, or some other mutually "beneficial" arrangement, or even through the unconscious addiction to the excitement of emotional drama and pain.
+
+.QP
+The opportunity that is concealed within every crisis does not manifest until all the facts of any given situation are acknowledged and fully accepted.
+As long as you deny them, as long as you try to escape from them or wish that things were different, the window of opportunity does not open up, and you remain trapped inside that situation, which will remain the same or deteriorate further.
+
+.QP
+Every moment, hold the knowing of that moment, particularly of your inner state.
+If there is anger, know that there is anger.
+If there is jealousy, defensiveness, the urge to argue, the need to be right, an inner child demanding love and attention, or emotional pain of any kind -- whatever it is, know the reality of that moment and hold the knowing.
+
+.QP
+As you may have noticed, they are not here to make you happy or fulfilled.
+If you continue to pursue the goal of salvation through a relationship, you will be disillusioned again and again.
+
+.QP
+This awareness does not deny the pain and yet is beyond it.
+It allows the pain to be and yet transmutes it at the same time. It accepts everything and transforms everything. 
+
+.QP
+The mind resists, fights for control, uses, manipulates, attacks, tries to grasp and possess, and so on.
+
+.QP
+As long as you make an identity for yourself out of the pain, you cannot become free of it.
+As long as part of your sense of self is invested in your emotional pain, you will unconsciously resist or sabotage every attempt that you make to heal that pain.
+
+.QP
+A victim identity is the belief that the past is more powerful than the present, which is the opposite of the truth.
+It is the belief that other people and what they did to you are responsible for who you are now, for your emotional pain or your inability to be your true self. 
+
+.QP
+As you know, full attention means full acceptance.
+
+.QP
+But do you need to have a relationship with yourself at all?
+Why can't you just be yourself?
+When you have a relationship with yourself, you have split yourself into two: 'I' and "myself," subject and object.
+That mind-created duality is the root cause of all unnecessary complexity, of all problems and conflict in your life. 
+
+.QP
+Happiness depends on conditions being perceived as positive; inner peace does not.
+
+.QP
+There have been many people for whom limitation, failure, loss, illness, or pain in whatever form turned out to be their greatest teacher.
+It taught them to let go of false self-images and superficial ego-dictated goals and desires.
+It gave them depth, humility, and compassion. It made them more real.
+
+.QP
+Whenever anything negative happens to you, there is a deep lesson concealed within it, although you may not see it at the time.
+Even a brief illness or an accident can show you what is real and unreal in your life, what ultimately matters and what doesn't.
+
+.QP
+And when you live in complete acceptance of what is -- which is the only sane way to live -- there is no "good" or "bad" in your life anymore.
+
+.QP
+This "allowing to be" takes you beyond the mind with its resistance patterns that create the positive-negative polarities.
+It is an essential aspect of forgiveness.
+Forgiveness of the present is even more important than forgiveness of the past.
+If you forgive every moment -- allow it to be as it is -- then there will be no accumulation of resentment that needs to be forgiven at some later time.
+
+.QP
+It seems that most people need to experience a great deal of suffering before they will relinquish resistance and accept -- before they will forgive.
+
+.QP
+Whenever two or more egos come together, drama of one kind or another ensues.
+But even if you live totally alone, you still create your own drama.
+When you feel sorry for yourself, that's drama.
+When you feel guilty or anxious, that's drama.
+When you let the past or future obscure the present, you are creating time, psychological time -- the stuff out of which drama is made.
+Whenever you are not honoring the present moment by allowing it to be, you are creating drama.
+[...]
+Most people are in love with their particular life drama.
+Their story is their identity.
+The ego runs their life.
+They have their whole sense of self invested in it.
+Even their -- usually unsuccessful -- search for an answer, a solution, or for healing becomes part of it.
+
+.QP
+When you live in complete acceptance of what is, that is the end of all drama in your life.
+Nobody can even have an argument with you, no matter how hard he or she tries.
+You cannot have an argument with a fully conscious person.
+An argument implies identification with your mind and a mental position, as well as resistance and reaction to the other person's position. 
+[...]
+This refers not only to conflict with other people but more fundamentally to conflict within you, which ceases when there is no longer any clash between the demands and expectations of your mind and what is.
+
+.QP
+There are cycles of success, when things come to you and thrive, and cycles of failure, when they wither or disintegrate and you have to let them go in order to make room for new things to arise, or for transformation to happen.
+If you cling and resist at that point, it means you are refusing to go with the flow of life, and you will suffer.
+
+.QP
+You must have failed deeply on some level or experienced some deep loss or pain to be drawn to the spiritual dimension.
+Or perhaps your very success became empty and meaningless and so turned out to be failure.
+Failure lies concealed in every success, and success in every failure.
+In this world, which is to say on the level of form, everybody "fails" sooner or later, of course, and every achievement eventually comes to naught.
+All forms are impermanent.
+
+.QP
+Your physical energy is also subject to cycles. It cannot always be at a peak.
+There will be times of low as well as high energy.
+There will be periods when you are highly active and creative, but there may also be times when everything seems stagnant, when it seems that you are not getting anywhere, not achieving anything.
+[...]
+The compulsion to do, and the tendency to derive your sense of self-worth and identity from external factors such as achievement, is an inevitable illusion as long as you are identified with the mind.
+This makes it hard or impossible for you to accept the low cycles and allow them to be.
+
+.QP
+The cyclical nature of the universe is closely linked with the impermanence of all things and situations.
+The Buddha made this a central part of his teaching.
+All conditions are highly unstable and in constant flux, or, as he put it, impermanence is a characteristic of every condition, every situation you will ever encounter in your life.
+It will change, disappear, or no longer satisfy you.
+
+.QP
+As long as a condition is judged as "good" by your mind, whether it be a relationship, a possession, a social role, a place, or your physical body, the mind attaches itself to it and identifies with it.
+It makes you happy, makes you feel good about yourself, and it may become part of who you are or think you are.
+But nothing lasts in this dimension where moth and rust consume.
+[...]
+The same condition that made you happy, then makes you unhappy.
+The prosperity of today becomes the empty consumerism of tomorrow.
+The happy wedding and honeymoon become the unhappy divorce or the unhappy coexistence.
+Or a condition disappears, so its absence makes you unhappy.
+When a condition or situation that the mind has attached itself to and identified with changes or disappears, the mind cannot accept it.
+It will cling to the disappearing condition and resist the change.
+
+.QP
+The Buddha taught that even your happiness is dukkha -- a Pali word meaning "suffering" or "unsatisfactoriness."
+It is inseparable from its opposite. This means that your happiness and unhappiness are in fact one. 
+[...]
+This is not being negative.
+It is simply recognizing the nature of things, so that you don't pursue an illusion for the rest of your life.
+Nor is it saying that you should no longer appreciate pleasant or beautiful things or conditions. But to seek something through them that they cannot give -- an identity, a sense of permanency and fulfillment -- is a recipe for frustration and suffering.
+The whole advertising industry and consumer society would collapse if people became enlightened and no longer sought to find their identity through things.
+The more you seek happiness in this way, the more it will elude you.
+Nothing out there will ever satisfy you except temporarily and superficially, but you may need to experience many disillusionments before you realize that truth.
+Things and conditions can give you pleasure, but they will also give you pain.
+
+.QP
+Many people never realize that there can be no "salvation" in anything they do, possess, or attain.
+Those who do realize it often become world-weary and depressed: if nothing can give you true fulfillment, what is there left to strive for, what is the point in anything?
+
+.QP
+I have learned to offer no resistance to what is; I have learned to allow the present moment to be and to accept the impermanent nature of all things and conditions.
+Thus have I found peace.
+
+.QP
+To offer no resistance to life is to be in a state of grace, ease, and lightness.
+This state is then no longer dependent upon things being in a certain way, good or bad.
+
+.QP
+You may not be happy, but you will be at peace.
+
+.QP
+All inner resistance is experienced as negativity in one form or another.
+All negativity is resistance.
+In this context, the two words are almost synonymous.
+Negativity ranges from irritation or impatience to fierce anger, from a depressed mood or sullen resentment to suicidal despair.
+[...]
+The ego believes that through negativity it can manipulate reality and get what it wants.
+It believes that through it, it can attract a desirable condition or dissolve an undesirable one.
+[...]
+Once you have identified with some form of negativity, you do not want to let go, and on a deeply unconscious level, you do not want positive change.
+It would threaten your identity as a depressed, angry, or hard-done-by person. 
+[...]
+Let it teach you integrity -- which means to be one, to be yourself, to be real. Let it teach you how to live and how to die, and how not to make living and dying into a problem.
+[...]
+Whenever you notice that some form of negativity has arisen within you, look on it not as a failure, but as a helpful signal that is telling you: "Wake up. Get out of your mind. Be present".
+
+.QP
+Somebody says something to you that is rude or designed to hurt.
+Instead of going into unconscious reaction and negativity, such as attack, defense, or withdrawal, you let it pass right through you.
+Offer no resistance.
+It is as if there is nobody there to get hurt anymore.
+That is forgiveness.
+In this way, you become invulnerable.
+
+.QP
+Forgive yourself for not being at peace.
+The moment you completely accept your non-peace, your non-peace becomes transmuted into peace.
+Anything you accept fully will get you there, will take you into peace.
+This is the miracle of surrender.
+
+.QP
+Having gone beyond the mind-made opposites, you become like a deep lake.
+The outer situation of your life and whatever happens there, is the surface of the lake.
+Sometimes calm, sometimes windy and rough, according to the cycles and seasons.
+Deep down, however, the lake is always undisturbed.
+You are the whole lake, not just the surface, and you are in touch with your own depth, which remains absolutely still.
+You don't resist change by mentally clinging to any situation.
+Your inner peace does not depend on it.
+You abide in Being -- unchanging, timeless, deathless -- and you are no longer dependent for fulfillment or happiness on the outer world of constantly fluctuating forms.
+
+.QP
+Compassion is the awareness of a deep bond between yourself and all creatures.
+
+.QP
+A few years from now -- two years or seventy years, it doesn't make much difference -- both of you will have become rotting corpses, then piles of dust, then nothing at all.
+This is a sobering and humbling realization that leaves little room for pride.
+
+.QP
+The world that you create and see through the egoic mind may seem a very imperfect place, even a vale of tears.
+But whatever you perceive is only a kind of symbol, like an image in a dream. 
+
+.QP
+Although you can enjoy sensory pleasures, the craving for sensory experience is gone, as is the constant search for fulfillment through psychological gratification, through feeding the ego.
+You are in touch with something infinitely greater than any pleasure, greater than any manifested thing.
+
+.QP
+True change happens within, not without.
+
+.QP
+Surrender is the simple but profound wisdom of yielding to rather than opposing the flow of life.
+The only place where you can experience the flow of life is the Now, so to surrender is to accept the present moment unconditionally and without reservation.
+It is to relinquish inner resistance to what is.
+Inner resistance is to say "no" to what is, through mental judgment and emotional negativity.
+It becomes particularly pronounced when things "go wrong," which means that there is a gap between the demands or rigid expectations of your mind and what is.
+That is the pain gap.
+If you have lived long enough, you will know that things "go wrong" quite often.
+It is precisely at those times that surrender needs to be practiced if you want to eliminate pain and sorrow from your life.
+Acceptance of what is immediately frees you from mind identification and thus reconnects you with Being.
+Resistance is the mind.
+
+.QP
+Surrender is a purely inner phenomenon.
+It does not mean that on the outer level you cannot take action and change the situation.
+
+.QP
+There is something within you that remains unaffected by the transient circumstances that make up your life situation, and only through surrender do you have access to it. 
+
+.QP
+Surrender is perfectly compatible with taking action, initiating change or achieving goals.
+But in the surrendered state a totally different energy, a different quality, flows into your doing.
+[...]
+In the state of surrender, you see very clearly what needs to be done, and you take action, doing one thing at a time and focusing on one thing at a time.
+
+.QP
+Ask yourself, "Is there anything I can do to change the situation, improve it, or remove myself from it?".
+If so, you take appropriate action.
+Focus not on the too things that you will or may have to do at some future time but on the one thing that you can do now.
+This doesn't mean you should not do any planning.
+It may well be that planning is the one thing you can do now.
+But make sure you don't start to run "mental movies," project yourself into the future, and so lose the Now.
+Any action you take may not bear fruit immediately. Until it does -- do not resist what is.
+If there is no action you can take, and you cannot remove yourself from the situation either, then use the situation to make you go more deeply into surrender, more deeply into the Now, more deeply into Being.
+
+.QP
+If you can never accept what is, by implication you will not be able to accept anybody the way they are.
+You will judge, criticize, label, reject, or attempt to change people.
+Furthermore, if you continuously make the Now into a means to an end in the future, you will also make every person you encounter or relate with into a means to an end.
+The relationship -- the human being -- is then of secondary importance to you, or of no importance at all.
+What you can get out of the relationship is primary -- be it material gain, a sense of power, physical pleasure, or some form of ego gratification.
+
+.QP
+If you suddenly feel very light, clear and deeply at peace, that is an unmistakable sign that you have truly surrendered.
+
+.QP
+Until there is surrender, unconscious role-playing constitutes a large part of human interaction.
+In surrender, you no longer need ego defenses and false masks.
+You become very simple, very real. "That's dangerous," says the ego.
+"You'll get hurt. You'll become vulnerable." What the ego doesn't know, of course, is that only through the letting go of resistance, through becoming "vulnerable," can you discover your true and essential invulnerability.
+
+.QP
+Now here is your second chance at surrender: If you cannot accept what is outside, then accept what is inside.
+If you cannot accept the external condition, accept the internal condition.
+This means: Do not resist the pain.
+Allow it to be there.
+Surrender to the grief, despair, fear, loneliness, or whatever form the suffering takes.
+Witness it without labeling it mentally.
+Embrace it.
+Then see how the miracle of surrender transmutes deep suffering into deep peace.
+This is your crucifixion.
+Let it become your resurrection and ascension.
+
+.QP
+When your pain is deep, all talk of surrender will probably seem futile and meaningless anyway.
+When your pain is deep, you will likely have a strong urge to escape from it rather than surrender to it.
+You don't want to feel what you feel.
+What could be more normal?
+But there is no escape, no way out.
+There are many pseudo escapes -- work, drink, drugs, anger, projection, suppression, and so on -- but they don't free you from the pain.
+Suffering does not diminish in intensity when you make it unconscious.
+[...]
+When there is no way out, there is still always a way through.
+So don't turn away from the pain.
+Face it.
+Feel it fully.
+Feel it -- don't think about it!
+Express it if necessary, but don't create a script in your mind around it.
+Give all your attention to the feeling, not to the person, event, or situation that seems to have caused it.
+Don't let the mind use the pain to create a victim identity for yourself out of it.
+Feeling sorry for yourself and telling others your story will keep you stuck in suffering.
+[...]
+Keep putting your attention on the pain, keep feeling the grief, the fear, the dread, the loneliness, whatever it is.
+Stay alert, stay present -- present with your whole Being, with every cell of your body.
+As you do so, you are bringing a light into this darkness.
+This is the flame of your consciousness.
+
+.QP
+It always looks as if people had a choice, but that is an illusion.
+As long as your mind with its conditioned patterns runs your life, as long as you are your mind, what choice do you have?
+None.
+You are not even there.
+The mindidentified state is severely dysfunctional.
+It is a form of insanity.
+Almost everyone is suffering from this illness in varying degrees.
+The moment you realize this, there can be no more resentment.
+How can you resent someone's illness?
+The only appropriate response is compassion.
