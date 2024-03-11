@@ -7,6 +7,46 @@ Johann Hari
 Notes
 
 .LP
+The 21st century is defined by "an attentional pathogenic culture".
+Multiple environmental factors contribute to deteriorate one's personal ability to focus and concentrate:
+
+.IP
+.B Information overload.
+The more information available, the less time one is able to evaluate individual parts of it.
+Technological fabrications like newspapers, radio, television, and digital media flooded the system with information.
+In the last 130 years this caused an increase in behaviors like the speed of walking, speaking and reading in people.
+.IP
+.B The switch cost effect.
+The increase of distractions and the cultural myth of "multitasking" reduced the time an individual could concentrate on a single task.
+The average time to return from interruption is 23 minutes.
+.IP
+.B Physical and mental exhaustion.
+The last century entailed a loss of 20% in sleep time.
+In addition the exposure of more artificial light (especially during nighttime) decreased the overall quality of sleep.
+Sleep eliminates metabolic waste in the brain and increases activity in the prefrontal cortex during daytime. 
+Narcoleptic people are also significantly more creative.
+.IP
+.B Screen inferiority.
+The quality of retaining information is worse when consumed through digital media.
+Screens train an individual to read in a way of "manic skip and jump".
+Technology fundamentally shapes the way how information is absorbed.
+.IP
+.B Lack of contemplation.
+The "default mode network" alias "mind wandering" declined through more mental stimulus-driven disruptions.
+This form of thinking enables more cognitive organisation and creativity as well as making better long-term decisions.
+.IP
+.B Manipulative technology.
+Digital technology is inherently designed to increase interaction time through reward reinforcements and the abuse of cognitive biases.
+This explotation of the human psychology drasticaly accelerated the average time spend on screens.
+.IP
+.B Surge in stress.
+Stress alters attentional processes and causes negative long-term structural changes in the brain.
+The leading causes for stress are increased financial and social problems.
+.IP
+.B Pollution and poor diet.
+Modern diets progressively lack nutrients and contain too many chemical substances.
+Urbanization and technological inventions increased exposure to toxins via pesticides, plasticisers, flame retardants and cosmetics.
+Both lead to inflammation in the body which causes problems with working memory and mental development.
 
 .SH
 Quotes
@@ -228,3 +268,20 @@ But Barbara Demeneix told me that trying to personally avoid pollutants today, a
 "We can eat bio [i.e. organic]. We can air our homes as often as possible. [We can] live in the countryside."
 But when it comes to these endocrine disruptors, "there's no escape. There's no escape."
 Not at the level of the isolated individual.
+
+.QP
+For years, scientists have been discovering a broad body of evidence showing that when people run around – or engage in any form of exercise – their ability to pay attention improves.
+[...]
+By 2003, in the US only 10 percent of children spent any time playing freely outdoors on a regular basis.
+
+.QP
+Richard and Ed discovered that it's easier to focus on something, and stick at it, if your motives are intrinsic – if you are doing something because it's meaningful to you – than if your motives are extrinsic, and you're doing it because you are forced to, or to get something out of it afterwards.
+The more intrinsic your motivation, the easier it will be to sustain your attention.
+
+.QP
+In the US, in April 2020, the average citizen spent thirteen hours a day looking at a screen.
+The number of children looking at screens for more than six hours a day increased sixfold, and traffic to kids' apps trebled.
+[...]
+"We were on a gradual slide into a world in which every one of our relationships was mediated by platforms and screens, and because of Covid, that gradual process went into hyper-speed."
+[...]
+If we continue to be a society of people who are severely under-slept and overworked; who switch tasks every three minutes; who are tracked and monitored by social media sites designed to figure out our weaknesses and manipulate them to make us scroll and scroll and scroll; who are so stressed that we become hypervigilant; who eat diets that cause our energy to spike and crash; who are breathing in a chemical soup of brain-inflaming toxins every day – then, yes, we will continue to be a society with serious attention problems. 
